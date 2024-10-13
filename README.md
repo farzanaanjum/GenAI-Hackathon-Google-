@@ -7,4 +7,6 @@ We Build this Application uisng Gemini Pro Model
 
 ![Cover-Image](https://github.com/user-attachments/assets/322e2f5b-828e-4a0c-9a65-e21967ab4ea9)
 
-More pratical demo is on my youtube please go and watch 👉 - 
+## More pratical demo is on my youtube please go and watch 👉 - https://www.youtube.com/watch?v=pBZLS1-Uq-Y
+
+
