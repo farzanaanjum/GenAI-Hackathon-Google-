@@ -11,6 +11,6 @@ https://github.com/user-attachments/assets/73d1aec4-26ee-4ab5-8da8-eeed576a1139
 
 
 
-## More pratical demo is on my youtube please go and watch 👉 - https://www.youtube.com/watch?v=pBZLS1-Uq-Y
+## More pratical demo is on my youtube please go and watch 👉  - https://www.youtube.com/watch?v=pBZLS1-Uq-Y
 
 
